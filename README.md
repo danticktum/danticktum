@@ -2,6 +2,8 @@
 
 <p align="center">
 <img src="https://files.catbox.moe/ymx6op.gif" width="480" height="270" />
+
+<p align="center"><a href="https://rentry.co/formula-e">𓈒 ㅤclick for socials + extras　𓏏𓏏　</a></p>
   
 <p align="center"> any . prns　₊ </p>
 <p align="center"><a href="https://danticktum.carrd.co/">𓈒ㅤ　carrd　𓏏𓏏　</a></p>
