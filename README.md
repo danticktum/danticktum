@@ -13,3 +13,8 @@
 <p align="center"><a href="https://danticktum.straw.page">𓈒ㅤ　strawpage　𓏏𓏏　</a></p>
 <p align="center"><a href="https://danticktum.atabook.org">𓈒 ata　𓏏𓏏　</a></p>
 <p align="center"><a href="https://guns.lol/danticktum">𓈒 ㅤguns.lol　𓏏𓏏　</a></p>
+
+<p align="center">draw me photos of dan ticktum and ill love you forever</p>
+
+<p align="center">
+<img src="https://cdn.discordapp.com/attachments/1481346114887225346/1481735989281165362/image.png?ex=69b465ad&is=69b3142d&hm=e72a47afaf896a93953af6956c2fd2f3e1f5aa11c1740601fbf721fb0b2d90fa" height="320px"/>
