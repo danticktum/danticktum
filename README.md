@@ -7,6 +7,8 @@
 
 <p align="center"><a href="https://rentry.co/formula-e">𓈒 ㅤclick for socials + extras　𓏏𓏏　</a></p>
 
+<p align="center"><a href="https://rentry.co/danticktum">𓈒 CLICK HERE FOR DAN TICKTUM COLLECTION!!　𓏏𓏏　</a></p>
+
 
 <p align="center"><a href="https://danticktum.carrd.co/">𓈒ㅤ　carrd　𓏏𓏏　</a></p>
 <p align="center"><a href="https://rentry.org/logansargeant">𓈒ㅤ　rentry　𓏏𓏏　</a></p>
