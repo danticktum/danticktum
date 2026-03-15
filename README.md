@@ -1,4 +1,5 @@
 <p align="center"> lo </p>
+<p align="center"> <img src=https://komarev.com/ghpvc/?username=danticktum&color=1a397f&label=engineers&style=plastic&abbreviated=true"/> </p>
 
 <p align="center">
 <img src="https://img.redbull.com/images/c_crop,x_220,y_0,h_2133,w_2488/c_fill,w_650,h_540/q_auto,f_auto/redbullcom/2017/12/03/e119bdf6-5163-44fe-9b40-e77beb14a95b/daniel-ticktum-podium-macau-forumula-3" height="320px"/>
