@@ -1,9 +1,7 @@
-<p align="center"> lo </p>
-<p align="center"> <img src=https://komarev.com/ghpvc/?username=danticktum&color=2f2d37&label=engineers&style=plastic&abbreviated=true"/> </p>
+<p align="center"> <img src=https://komarev.com/ghpvc/?username=danticktum&color=2f2d37&label=patients&style=plastic&abbreviated=true"/> 
+<p align="center">
+    <p align="center">
+    <p align="center">ㅤ
+    <p align="center"><a href="https://rentry.co/doctorssecret">rentry</a>   ༉   ‎‎<a href="https://danticktum.atabook.org/">a̲t̲t̲a̲b̲o̲o̲k̲</a>
 
-<p align="center"><img width="1012" height="617" alt="Image" src="https://github.com/user-attachments/assets/c46c66cf-90ae-4d89-83a0-7459273e7d18" />
-  
-<p align="center"> any . prns　₊ </p>
-
-<p align="center"><a href="https://rentry.co/youngdrac">𓈒 ㅤclick for socials + extras　𓏏𓏏　</a></p>
-<p align="center"><a href="https://danticktum.atabook.org">𓈒 ata　𓏏𓏏　</a></p>
+<p align="center"><img width="2048" height="1463" alt="image" src="https://github.com/user-attachments/assets/7e8a86a2-ac37-4608-b6d4-6c1c5f6ea15b" />
