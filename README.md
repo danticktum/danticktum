@@ -18,7 +18,7 @@ alt="visitors">
   <sub>⠀⠀</sub><br>
 
 <p align="center">
-<a href="https://danticktum.atabook.org/">ata</a>　　<a href="https://github.com/danticktum">guns.lol</a>　　<a href="https://danticktum.straw.page/">strawpage</a>　　<a href="https://popiso.carrd.co">carrd</a>　　<a href="https://pronouns.cc/@whitakers">prns.cc</a>
+<a href="https://danticktum.atabook.org/">ata</a>　　<a href="https://guns.lol/sallybowles">guns.lol</a>　　<a href="https://danticktum.straw.page/">strawpage</a>　　<a href="https://popiso.carrd.co">carrd</a>　　<a href="https://pronouns.cc/@whitakers">prns.cc</a>
 <br><br><br>
 
 ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀
